@@ -1,0 +1,1 @@
+Detractors of house [[Hoek|Hoek]]. They take issue with King Hoek. They are preparing for war, moving weapons, firearms, potions, and other supplies long distances.
