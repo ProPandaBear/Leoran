@@ -1,1 +1,0 @@
-Hoekstead is a large city with a hybrid government, run in part by both a King and a parliament. 
