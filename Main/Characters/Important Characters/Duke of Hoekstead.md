@@ -1,0 +1,1 @@
+The duke who was kidnapped.
